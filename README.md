@@ -8,4 +8,3 @@
 
 <b>![alt text](https://i.pinimg.com/736x/46/3d/9f/463d9ffba49155d4a6708efc43efc4fb.jpg)<b>
 
-<b>![alt text](https://files.catbox.moe/9w9ncj.png)<b>
