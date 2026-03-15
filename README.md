@@ -2,9 +2,23 @@
 
 <b>![alt text](https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta03.gif)<b>
 
-<b>![alt text](https://64.media.tumblr.com/7b068a298ebf5d047cd415e3a7af7ceb/7169a20908fe643d-1c/s640x960/1ca13e1a7cbe53f1a7536aa67a90e9fc7b08a304.webp)<b>
+<b>![alt text](https://media1.tenor.com/m/BjWgCZGP8x4AAAAd/simon-henriksson-cry-of-fear.gif)<b>
+
+"ᴵ'ᵛᵉ ᵃˡʷᵃʸˢ ᶠᵉˡᵗ ᵃˡᵒⁿᵉ ᵐʸ ʷʰᵒˡᵉ ˡᶦᶠᵉ,
+
+ᶠᵒʳ ᵃˢ ˡᵒⁿᵍ ᵃˢ ᴵ ᶜᵃⁿ ʳᵉᵐᵉᵐᵇᵉʳ.
+
+ᴵ ᵈᵒⁿ'ᵗ ᵏⁿᵒʷ ᶦᶠ ᴵ ˡᶦᵏᵉ ᶦᵗ... ᵒʳ ᶦᶠ ᴵ'ᵐ ʲᵘˢᵗ
+
+ᵘˢᵉᵈ ᵗᵒ ᶦᵗ, ᵇᵘᵗ ᴵ ᵈᵒ ᵏⁿᵒʷ ᵗʰᶦˢ:
+
+ᴮᵉᶦⁿᵍ ˡᵒⁿᵉˡʸ ᵈᵒᵉˢ ᵗʰᶦⁿᵍˢ ᵗᵒ ʸᵒᵘ, ᵃⁿᵈ ᶠᵉᵉˡᶦⁿᵍ ˢʰᶦᵗ ᵃⁿᵈ ᵇᶦᵗᵗᵉʳ
+
+ᵃⁿᵈ ᵃⁿᵍʳʸ ᵃˡˡ ᵗʰᵉ ᵗᶦᵐᵉ ʲᵘˢᵗ... ᵉᵃᵗˢ ᵃʷᵃʸ ᵃᵗ ʸᵒᵘ."
+
+<b>![alt text](https://64.media.tumblr.com/accd37134a7171f73f97c8cbe545d585/72a9721707f6aa74-21/s100x200/1c76af0e407dad4640b55e7c1470b8f1e9a92bd9.gifv)<b>
 
 <b>![alt text](https://files.catbox.moe/9w9ncj.png)<b>
 
-<b>![alt text](https://i.pinimg.com/736x/46/3d/9f/463d9ffba49155d4a6708efc43efc4fb.jpg)<b>
+<b>![alt text](https://media.tenor.com/_CYggJEo45IAAAAj/cof-cry-of-fear.gif)<b>
 
